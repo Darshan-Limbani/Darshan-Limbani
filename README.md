@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **darshanlimbani94@gmail.com**
 
-- 📄 Know about my experiences, Here is my [Resume](https://drive.google.com/file/d/1BHnzYpPFJd_hoZWiBL-Jt87Y66O2mwnf/view?usp=sharing)
+- 📄 Know about my experiences, Here is my [Resume](https://drive.google.com/file/d/1DPd5ktUgspLES8TDY9RxVFcZpeEAmx76/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
